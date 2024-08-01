@@ -1,16 +1,15 @@
-## Hi there 👋
+Oi 💀
 
-<!--
-**J0S3-dev835/J0S3-dev835** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é José Carlos de Moraes Neto
 
-Here are some ideas to get you started:
+- Estou no meu 1° ano do Ensino Médio
+- 16 anos
+- Amo História 🧠
+- Futuro desenvolvedor da Nintendo :mushroom:
+- Brasileiro 🇧🇷
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Instagram: zezinho_1514
+
+Respondo DM
+
+![](https://media.tenor.com/-mH-VJfFT4oAAAAi/super-mario-mario.gif)
